@@ -5,9 +5,7 @@
 
 - 📫 How to reach me **ppan@cesar.school**
 
-- 📄 Know about my experiences [i dont have much experience at all, but im looking to change that](i dont have much experience at all, but im looking to change that)
-
-- ⚡ Fun fact **im very picky**
+- ⚡ Fun fact **im very picky and i dont have any social media**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
